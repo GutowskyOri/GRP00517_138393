@@ -1,2 +1,3 @@
 # Leiturinha
-Blah Blah Blah, isso aqui funcina bem
+Blah Blah Blah, isso aqui funciona bem
+Uw
